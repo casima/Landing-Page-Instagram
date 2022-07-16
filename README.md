@@ -11,7 +11,7 @@
 [Linkedin](https://www.linkedin.com/in/casima)
 
 
-## Contato
+## Contatos
 
 :phone: (12) 9 98819-8101
 
